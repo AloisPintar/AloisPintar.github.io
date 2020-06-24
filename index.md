@@ -1,1 +1,2 @@
 # Titel
+Lucky Luke ist die Titelfigur einer seit 1946 erscheinenden belgischen Comic-Serie des Zeichners Morris. Lucky Luke ist mit mehr als 30 Millionen verkauften Alben in Deutschland die erfolgreichste Comic-Serie im Alben-Sektor nach Asterix und der bekannteste und erfolgreichste Western-Comic weltweit.
