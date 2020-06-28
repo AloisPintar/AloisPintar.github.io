@@ -8,8 +8,12 @@ Lucky Luke ist die Titelfigur einer seit 1946 erscheinenden belgischen Comic-Ser
 * Ist ein Einzelgänger
 * Hat seine Prinzipien
 
-Er pflegte zu sagen:> Jeder kriegt bei mir seine Chance> jetzt oder in Zukunft
+Er pflegte zu sagen:
 
+> Jeder kriegt bei mir seine Chance
+> jetzt oder in Zukunft
+
+<img src="https://cdn.unitycms.io/image/ocroped/2001,2000,1000,1000,0,0/9SYsLYnlvf8/DlllUJYTKUlBWG0Ma1GvHf.jpg"/> 
 
 
 
